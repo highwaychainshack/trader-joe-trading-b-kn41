@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with high-frequency trader joe trading bot Utility | gas-optimization + MEV-strategies, the #1 trader joe trading bot. Includes gas-optimization and
 
 
 
